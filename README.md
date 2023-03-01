@@ -7,4 +7,3 @@ Here are some ideas to get you started:
 
 - 🔭 Atualmente estou trabalhando em; Massada Roleplay.
 - 👯 Estou querendo colaborar.
--->
